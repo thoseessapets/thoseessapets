@@ -6,4 +6,4 @@
 
 [@𝓌ednedayaddamsss](https://github.com/wednesdayaddamsss)= main
 
-[𝑔uns.lol](https://guns.lol/essapets)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://en.pronouns.page/@rosslynch)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇entry](https://rentry.co/haIloweentown)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://pronouns.cc/@mmk)
+[𝑔uns.lol](https://guns.lol/essapets)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns](https://en.pronouns.page/@rosslynch)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇entry](https://rentry.org/haIloweentown)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://pronouns.cc/@mmk)
